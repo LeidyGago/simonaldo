@@ -3,7 +3,7 @@
 DON'T CALL ME GAGA!!💋
 ☆*: .｡. o(≧▽≦)o .｡.:*☆
 slarco entertainment™✨✨
-![](https://media1.tenor.com/m/BeF2KkhiVwwAAAAd/lady-gaga-alejandro.gif)
+![](https://media1.tenor.com/m/IxSt_KDI7kwAAAAC/invader-zim-gir.gif)
 
 
 
